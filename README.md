@@ -43,4 +43,6 @@ Contacting us
 
 If you have any questions about this Policy, please contact us.
 
+By email: dogabayram1@gmail.com
+
 This document was last updated on December 12, 2018
